@@ -1,2 +1,2 @@
 # tonanhtruc.github.io
-Tôn Anh Truc_20520944_KHMT2020
+Tôn Anh Trúc_20520944_KHMT2020
